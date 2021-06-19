@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Brutal_Strength

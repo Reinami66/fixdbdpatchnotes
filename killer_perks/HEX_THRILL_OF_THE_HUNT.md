@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Hex:_Thrill_of_the_Hunt

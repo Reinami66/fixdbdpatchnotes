@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Hex:_No_One_Escapes_Death

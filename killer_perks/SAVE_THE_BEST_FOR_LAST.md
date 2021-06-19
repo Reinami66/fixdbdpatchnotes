@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Save_the_Best_for_Last

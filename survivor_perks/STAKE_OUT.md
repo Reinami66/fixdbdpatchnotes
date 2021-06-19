@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Stake_Out

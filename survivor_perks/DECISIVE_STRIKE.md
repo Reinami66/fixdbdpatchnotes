@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Decisive_Strike

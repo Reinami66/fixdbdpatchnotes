@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Off_the_Record

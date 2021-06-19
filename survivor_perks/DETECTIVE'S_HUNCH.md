@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Detective's_Hunch

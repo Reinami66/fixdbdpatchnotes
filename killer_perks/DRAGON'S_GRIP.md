@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Dragon's_Grip

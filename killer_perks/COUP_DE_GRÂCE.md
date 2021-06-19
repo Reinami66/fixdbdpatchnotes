@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Coup_de_Gr%C3%A2ce

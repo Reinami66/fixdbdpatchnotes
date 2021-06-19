@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/D%C3%A9j%C3%A0_Vu

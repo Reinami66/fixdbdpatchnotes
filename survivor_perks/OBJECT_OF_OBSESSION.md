@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Object_of_Obsession

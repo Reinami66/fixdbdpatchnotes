@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Beast_of_Prey

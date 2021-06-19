@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Plunderer's_Instinct

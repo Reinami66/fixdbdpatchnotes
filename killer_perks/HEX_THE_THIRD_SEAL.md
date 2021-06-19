@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Hex:_The_Third_Seal

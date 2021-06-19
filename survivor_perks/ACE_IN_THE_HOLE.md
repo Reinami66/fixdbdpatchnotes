@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Ace_in_the_Hole

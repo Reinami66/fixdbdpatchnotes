@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/Trail_of_Torment

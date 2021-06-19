@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/For_the_People

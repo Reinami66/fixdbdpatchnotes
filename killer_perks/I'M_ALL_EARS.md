@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/I'm_All_Ears

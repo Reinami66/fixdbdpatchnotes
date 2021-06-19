@@ -1,0 +1,1 @@
+https://deadbydaylight.fandom.com/wiki/We're_Gonna_Live_Forever
